@@ -1,4 +1,4 @@
-# 
+# Get the ultimate meme coin sniper bot with new meme coin sniper bot | auto-buy + contract-verification. Featuring auto-buy and contract-verification, it's the best choice for
 
 
 
